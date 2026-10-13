@@ -12,7 +12,7 @@
 
 ### About
 
-Profissional na área de Marketing com mais de 3 anos de experiência e análise de dados.
+Profissional na área de Marketing com mais de 4 anos de experiência e análise de dados.
 
 - ⌖ **Location** · São Paulo
 - ⌗ **Experience** · Analista de dados e marketing digital
